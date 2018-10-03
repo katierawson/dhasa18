@@ -13,7 +13,7 @@ We think American studies scholars have the potential to undertake transformativ
 
 We’ll hold these consultations from 5 to 6 p.m. on Friday, November 9, Westin Peachtree Plaza Atlanta, Piedmont 6.
 
-To request a consultation, please [register here](https://docs.google.com/forms/d/e/1FAIpQLSeqZ6_j58bofPOGuk3Lm84JYM2rOLygko07hRlhD34OCOyG5g/viewform?usp=sf_link) by Sunday, November 1.
+To request a consultation, please [register here](https://docs.google.com/forms/d/e/1FAIpQLSeqZ6_j58bofPOGuk3Lm84JYM2rOLygko07hRlhD34OCOyG5g/viewform?usp=sf_link) by Friday, November 2.
 
 If you would like to be a consultant on digital projects, [register here](https://docs.google.com/forms/d/e/1FAIpQLSe-zrkph1C0Y-IdzefijOOHXEYmbXgVdd2bQRuPKYPAztcVxQ/viewform?usp=sf_link). 
 
